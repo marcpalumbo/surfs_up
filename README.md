@@ -12,4 +12,4 @@ Similarly to June, there is not much deviation on a day to day basis with a stan
 
 ## Conclusion
 
-In conclusion I believe it is safe to say that this surf shop should get and running. With ideal Summer months and doable winter months, there is no reason to think that they will lack success. 
+In conclusion I believe it is safe to say that this surf shop should get up and running. With ideal Summer months and doable winter months, there is no reason to think that they will lack success. 
